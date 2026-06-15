@@ -1,0 +1,1 @@
+The Thirukkuṟaḷ, or shortly the Kural, is a classic Tamil language text on commoner's morality consisting of 1,330 short couplets, or kurals, of seven words each. The text is divided into three books with aphoristic teachings on virtue, wealth and love, respectively
